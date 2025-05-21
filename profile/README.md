@@ -2,6 +2,8 @@
 
 **OvO Unblocked** is an **epic, high-speed parkour platformer** that challenges your reflexes and pushes your skills to the limit. Whether you're at school, work, or home, this **unblocked game** delivers **unforgettable thrills**, **blazing-fast action**, and **insane acrobatics** – all for free in your browser!
 
+## <a href="https://1kb.link/UV9d1C">👉 Click To Play OvO Unblocked Games 👈</a>
+
 ### 🔥 What Is OvO Unblocked?
 
 OvO Unblocked is a **2D parkour game** where you control a nimble stickman navigating through **deadly traps**, **gravity-defying jumps**, and **fiery obstacles**. With **pixel-perfect timing** and **super-tight controls**, every move feels **hyper-responsive** and satisfying.
